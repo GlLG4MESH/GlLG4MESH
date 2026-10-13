@@ -1,2 +1,2 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/2d/ea/b6/2deab68faf03869b68cf7c1a7f0a3ca0.jpg">
+  <img src="https://i.pinimg.com/originals/64/13/20/6413203475894942105fd113776c13b6.gif">
